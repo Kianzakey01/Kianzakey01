@@ -2,7 +2,7 @@
 - 👀 I’m interested in UI/UX Design and Web Development
 - 🌱 I’m currently learning UI/UX Design and Web Development
 - 💞️ I’m looking to many opportunities to learn
-- 📫 If you'd like to reach out to me, I am only one click away thorugh IG @kianzakey
+- 📫 If you'd like to reach out to me, I am only one click away through IG @kianzakey
 - 😄 Pronouns: She/Her
 - ⚡ Fun fact: An adventurer
 
